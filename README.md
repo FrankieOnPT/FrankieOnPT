@@ -13,7 +13,7 @@
 <p align="center"> Neptunic ~ Bigender ~ Agensexual
 <p align="center"> I'm super duper omega hella gay, especially very ASEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
 </p>
-<p align="center"> I have professionally diagnosed ASD, so apologies if I say something confusing, random, or wrong. I probably don't know what I said either :|
+<p align="center"> I have professionally diagnosed ASD, so forgive me if I say something confusing, random, or wrong. I probably don't know what I said either :l
 </p>
 <p align="center"> I have no DNI list aside from common sense/illegal stuff, so idrc who interacts w me! I'll confront you if I get uncomfortable by something.
 </p>
@@ -22,5 +22,8 @@
 </p>
 <p align="center"> I'M CURRENTLY WORKING ON DOING A THANOS COSPLAY IRL?!?!?! STAY TUNED~ :3
 </p>
-<p align="center"> Anyways, uh, thanks for being interested in me... check out my strawpage if you wanna learn more!
+<p align="center"> Anyways, uh, thanks for reading... check out my strawpage if you wanna learn more!
+</p>
+<p align="center">
+    <img <img width="230" height="120" src="https://github.com/user-attachments/assets/2afb13b8-326e-494a-b3aa-bb7c8152d485">
 </p>
