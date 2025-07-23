@@ -13,7 +13,7 @@
 <p align="center"> Neptunic ~ Bigender ~ Agensexual
 <p align="center"> I'm super duper omega hella gay, especially very ASEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
 </p>
-<p align="center"> I have professionally diagnosed ASD, so forgive me if I say something confusing, random, or wrong. I probably don't know what I said either :l
+<p align="center"> I have professionally diagnosed ASD, so apologies if I say something confusing, random, or wrong. I probably don't know what I said either :l
 </p>
 <p align="center"> I have no DNI list aside from common sense/illegal stuff, so idrc who interacts w me! I'll confront you if I get uncomfortable by something.
 </p>
@@ -27,5 +27,5 @@
 <p align="center">
     <img <img width="230" height="120" src="https://github.com/user-attachments/assets/2afb13b8-326e-494a-b3aa-bb7c8152d485">
 </p>
-<p align="center"> "Ready to Die by Andrew W.K but it's a Squid Game AU where Thanos lives to make it to the hide & seek game so him and Nam-gyu go on a gay killing rampage" <3
+<p align="center"> "Ready to Die by Andrew W.K but it's a Squid Game AU where Thanos lives and makes it to hide & seek so him and Nam-gyu go on a gay killing rampage" <3
 </p>
