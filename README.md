@@ -27,3 +27,5 @@
 <p align="center">
     <img <img width="230" height="120" src="https://github.com/user-attachments/assets/2afb13b8-326e-494a-b3aa-bb7c8152d485">
 </p>
+<p align="center"> "Ready to Die by Andrew W.K but it's a Squid Game AU where Thanos lives to make it to the hide & seek game so him and Nam-gyu go on a gay killing rampage" <3
+</p>
