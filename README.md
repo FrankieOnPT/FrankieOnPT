@@ -5,10 +5,8 @@
 </p>
 <p align="center"> You can call me Frankie, I am 22 and go by any pronouns, but I prefer she/her or they/them for close friends.
 </p>
-<p align="center"> The gifs on here will be of whatever I'm currently obsessed with :p <del>holy shit, they are so gay.</del>
-</p>
 <p align="center">
-    <img <img width="270" height="94" alt="My Flags as Hearts" src="https://github.com/user-attachments/assets/c2805ba0-56b0-4ebc-a752-9452cffc4fe4" />
+    <img <img width="220" height="74" alt="My Flags as Hearts" src="https://github.com/user-attachments/assets/c2805ba0-56b0-4ebc-a752-9452cffc4fe4" />
 </p>
 <p align="center"> Neptunic ~ Bigender ~ Agensexual
 <p align="center"> I'm super duper omega hella gay, especially very ASEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
