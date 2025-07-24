@@ -5,6 +5,8 @@
 </p>
 <p align="center"> You can call me Frankie, I am 22 and go by any pronouns, but I prefer she/her or they/them for close friends.
 </p>
+<p align="center"> I'm currently obsessed with thangyu :3 <del>holy shit they are so gay</del>
+</p>
 <p align="center">
     <img <img width="220" height="74" alt="My Flags as Hearts" src="https://github.com/user-attachments/assets/c2805ba0-56b0-4ebc-a752-9452cffc4fe4" />
 </p>
@@ -18,7 +20,7 @@
 <p align="center">
     <img src="https://github.com/user-attachments/assets/8157ff46-3b05-4ddf-af80-a8fd2b176fed">
 </p>
-<p align="center"> I'M CURRENTLY WORKING ON A THANOS COSPLAY IRL?!?!?! STAY TUNED~ :3
+<p align="center"> I'M CURRENTLY WORKING ON A THANOS COSPLAY IRL?!?!?! STAY TUNED~ :D
 </p>
 <p align="center"> Anyways, uh, thanks for reading... check out my strawpage if you wanna learn more!
 </p>
