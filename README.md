@@ -29,3 +29,5 @@
 </p>
 <p align="center"> "Ready to Die by Andrew W.K but it's a Squid Game AU where Thanos lives and makes it to hide & seek so him and Nam-gyu go on a gay killing rampage" <3
 </p>
+<p align="center"> I made a Thangyu playlist on my Spotify (which you can find a link to on my strawpage)... check it out !!
+</p>
