@@ -8,9 +8,9 @@
 <p align="center"> I'm currently obsessed with thangyu :3 <del>holy shit they are so gay</del>
 </p>
 <p align="center">
-    <img <img width="220" height="74" alt="My Flags as Hearts" src="https://github.com/user-attachments/assets/c2805ba0-56b0-4ebc-a752-9452cffc4fe4" />
+    <img <img width="250" height="94" alt="My Flags as Hearts" src="https://github.com/user-attachments/assets/14e8d2f7-fc07-4d63-97c3-87e2c4945d75"/>
 </p>
-<p align="center"> Neptunic ~ Bigender ~ Agensexual
+<p align="center"> Neptunic ~ Cupioromantic ~ Agensexual ~ Bigender
 <p align="center"> I'm super duper omega hella gay, especially very ASEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
 </p>
 <p align="center"> I have professionally diagnosed ASD, so apologies if I say something confusing, random, or wrong. I probably don't know what I said either :l
