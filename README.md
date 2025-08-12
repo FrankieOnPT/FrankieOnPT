@@ -22,7 +22,7 @@
 <p align="center">
     <img src="https://github.com/user-attachments/assets/8157ff46-3b05-4ddf-af80-a8fd2b176fed">
 </p>
-<p align="center"> I'M WORKING ON DOING A THANOS COSPLAY IRL?!?!?! STAY TUNED~ :D
+<p align="center"> I DID A THANOS COSPLAY!! You can find it on my Threads :D
 </p>
 <p align="center"> Anyways, uh, thanks for reading... check out my strawpage if you wanna learn more!
 </p>
