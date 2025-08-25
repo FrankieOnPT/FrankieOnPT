@@ -8,9 +8,9 @@
 <p align="center"> I'm currently obsessed with thangyu :3 <del>holy shit they are so gay</del>
 </p>
 <p align="center">
-    <img <img width="250" height="94" alt="My Flags as Hearts" src="https://github.com/user-attachments/assets/14e8d2f7-fc07-4d63-97c3-87e2c4945d75"/>
+    <img <img width="250" height="94" alt="My Flags as Hearts" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3d1d8d2b-7214-40af-b074-905469dc0011/dk97i9m-b24bb407-f814-49fd-a1fd-ce1299939fcb.png/v1/fill/w_1280,h_280/my_flags_as_hearts_by_dragaypult_dk97i9m-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MjgwIiwicGF0aCI6IlwvZlwvM2QxZDhkMmItNzIxNC00MGFmLWIwNzQtOTA1NDY5ZGMwMDExXC9kazk3aTltLWIyNGJiNDA3LWY4MTQtNDlmZC1hMWZkLWNlMTI5OTkzOWZjYi5wbmciLCJ3aWR0aCI6Ijw9MTI4MCJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.I6yf0gg_69ZvMUjos4Vd6M1w7XVux3h1s0bSiLuYVH8"/>
 </p>
-<p align="center"> Neptunic ~ Cupioromantic ~ Agensexual ~ Bigender
+<p align="center"> Nesoic ~ Cupioromantic ~ Agensexual ~ Bigender
 <p align="center"> I'm super duper omega hella gay, especially very ASEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
 </p>
 <p align="center"> I have professionally diagnosed ASD, so apologies if I say something confusing, random, or wrong. I probably don't know what I said either :l
@@ -30,6 +30,4 @@
     <img <img width="230" height="120" src="https://github.com/user-attachments/assets/2afb13b8-326e-494a-b3aa-bb7c8152d485">
 </p>
 <p align="center"> "Ready to Die by Andrew W.K but it's a Squid Game AU where Thanos lives and makes it to hide & seek so him and Nam-gyu go on a gay killing rampage" <3
-</p>
-<p align="center"> I made a Thangyu playlist on my Spotify (which you can find a link to on my strawpage)... check it out !!
 </p>
