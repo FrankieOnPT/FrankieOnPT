@@ -8,9 +8,9 @@
 <p align="center"> I'm currently obsessed with thangyu :3 <del>holy shit they are so gay</del>
 </p>
 <p align="center">
-    <img <img width="250" height="94" alt="My Flags as Hearts" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3d1d8d2b-7214-40af-b074-905469dc0011/dk97i9m-b24bb407-f814-49fd-a1fd-ce1299939fcb.png/v1/fill/w_1280,h_280/my_flags_as_hearts_by_dragaypult_dk97i9m-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MjgwIiwicGF0aCI6IlwvZlwvM2QxZDhkMmItNzIxNC00MGFmLWIwNzQtOTA1NDY5ZGMwMDExXC9kazk3aTltLWIyNGJiNDA3LWY4MTQtNDlmZC1hMWZkLWNlMTI5OTkzOWZjYi5wbmciLCJ3aWR0aCI6Ijw9MTI4MCJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.I6yf0gg_69ZvMUjos4Vd6M1w7XVux3h1s0bSiLuYVH8"/>
+    <img <img width="250" height="94" alt="My Flags as Hearts" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3d1d8d2b-7214-40af-b074-905469dc0011/dk97i9m-600101bd-4b6e-4393-ae96-abf71c266558.png/v1/fill/w_1280,h_280/my_flags_as_hearts_by_dragaypult_dk97i9m-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MjgwIiwicGF0aCI6IlwvZlwvM2QxZDhkMmItNzIxNC00MGFmLWIwNzQtOTA1NDY5ZGMwMDExXC9kazk3aTltLTYwMDEwMWJkLTRiNmUtNDM5My1hZTk2LWFiZjcxYzI2NjU1OC5wbmciLCJ3aWR0aCI6Ijw9MTI4MCJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.ojMq1uS900XjCZNKr1v94myUpweQGTERuCCBaBPfvuU"/>
 </p>
-<p align="center"> Nesoic ~ Cupioromantic ~ Agensexual ~ Bigender
+<p align="center"> Nesoic ~ Cupioromantic ~ Agensexual ~ Androgyne
 <p align="center"> I'm super duper omega hella gay, especially very ASEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
 </p>
 <p align="center"> I have professionally diagnosed ASD, so apologies if I say something confusing, random, or wrong. I probably don't know what I said either :l
