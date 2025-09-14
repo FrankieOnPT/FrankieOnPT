@@ -5,13 +5,11 @@
 </p>
 <p align="center"> You can call me Frankie, I am 22 and go by any pronouns.
 </p>
-<p align="center"> I'm super duper omega hella gay, especially very ASEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
+<p align="center"> I'm super duper very ASEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
 </p>
 <p align="center"> I have professionally diagnosed ASD, so apologies if I say something confusing, random, or wrong. I probably don't know what I said either.
 </p>
 <p align="center"> I have no DNI list aside from common sense/illegal stuff, so idrc who interacts w me! I'll confront you if I get uncomfortable by something.
-</p>
-<p align="center"> If I unfriend you without saying why, don't take it personally! I tend to clean my friend list monthly and unfriend people who stop talking to me.
 </p>
 <p align="center">
     <img src="https://github.com/user-attachments/assets/8157ff46-3b05-4ddf-af80-a8fd2b176fed">
