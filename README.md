@@ -11,9 +11,6 @@
 </p>
 <p align="center"> I have no DNI list aside from common sense/illegal stuff, so idrc who interacts w me! I'll confront you if I get uncomfortable by something.
 </p>
-<p align="center">
-    <img src="https://github.com/user-attachments/assets/8157ff46-3b05-4ddf-af80-a8fd2b176fed">
-</p>
 <p align="center"> Anyways, uh, thanks for reading... check out my strawpage if you wanna learn more!
 </p>
 <p align="center">
