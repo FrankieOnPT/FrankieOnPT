@@ -3,7 +3,7 @@
 <p align="center">
     <img src="https://github.com/user-attachments/assets/3e1b1432-8d10-4428-90cc-ae133addbf8d">
 </p>
-<p align="center"> You can call me Frankie, I am 22 and go by any pronouns.
+<p align="center"> You can call me Frankie, I am over 20 years old and go by any pronouns.
 </p>
 <p align="center"> I'm super duper very ASEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
 </p>
