@@ -3,9 +3,9 @@
 <p align="center">
     <img src="https://github.com/user-attachments/assets/3e1b1432-8d10-4428-90cc-ae133addbf8d">
 </p>
-<p align="center"> You can call me Frankie, I am over 20 years old and go by any pronouns.
+<p align="center"> You can call me Frankie, I am 21+ and my pronouns are she/they.
 </p>
-<p align="center"> I'm super duper very ASEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
+<p align="center"> I'm super duper very DEMISEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
 </p>
 <p align="center"> I have professionally diagnosed ASD, so apologies if I say something confusing, random, or wrong. I probably don't know what I said either.
 </p>
