@@ -5,8 +5,6 @@
 </p>
 <p align="center"> You can call me Frankie, I am 21+ and my pronouns are she/they.
 </p>
-<p align="center"> I'm super duper very DEMISEXUAL. I love befriending other acespec ppl, so pls chat w me if you are!
-</p>
 <p align="center"> I have professionally diagnosed ASD, so apologies if I say something confusing, random, or wrong. I probably don't know what I said either.
 </p>
 <p align="center"> I have no DNI list aside from common sense/illegal stuff, so idrc who interacts w me! I'll confront you if I get uncomfortable by something.
