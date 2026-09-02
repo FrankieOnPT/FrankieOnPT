@@ -14,4 +14,4 @@
 <p align="center"> Anyways, uh, thanks for reading... check out my strawpage if you wanna learn more!
 </p>
 <p align="center">
-    <img <img width="230" height="120" src="[https://github.com/user-attachments/assets/2afb13b8-326e-494a-b3aa-bb7c8152d485](https://i.imgur.com/IiMdmOb.gif)">
+    <img src="https://i.imgur.com/xyojGQ4.gif" alt="Frankie Waving" width="500">
