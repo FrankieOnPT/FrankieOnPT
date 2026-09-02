@@ -1,7 +1,7 @@
 <p align="center"> Alola! Welcome to my profile.
 </p>
 <p align="center">
-    <img src="[https://github.com/user-attachments/assets/3e1b1432-8d10-4428-90cc-ae133addbf8d](https://i.imgur.com/xyojGQ4.gif)">
+    <img src="[https://github.com/user-attachments/assets/3e1b1432-8d10-4428-90cc-ae133addbf8d](https://i.imgur.com/xyojGQ4.gif)](https://i.imgur.com/xyojGQ4.gif]">
 </p>
 <p align="center"> You can call me Frankie, I am 21+ and my pronouns are she/they.
 </p>
